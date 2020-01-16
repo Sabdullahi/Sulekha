@@ -1,3 +1,3 @@
 # Sulekha
-Sulekha likes to finish asignments on tim
+Sulekha likes to finish asignments on time
 Sulekha loves to finish assignments one time
